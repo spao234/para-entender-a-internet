@@ -955,5 +955,5 @@ Sim minha gente, a rainha icone da musica pupular brasileira, Elza Soares se des
 
 ## Valeria do Zorra Total
 
-Ai como estou bandida meme atemporal.
+Ai como estou bandida meme atemporal do Zorra Total.
 [![Valeria]](https://www.youtube.com/watch?v=vOccpw7lmWo)
